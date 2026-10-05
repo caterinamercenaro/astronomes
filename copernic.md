@@ -1,0 +1,1 @@
+Nicolas Copernic est né le 19 février 1473 et mort le 24 mai 1543. Nicolas Copernic a démontré et développé le modèle héliocentrique. Contrairement au modèle géocentrique de Ptolémée qui plaçait la Terre au centre, Copernic place le Soleil au centre du système.
