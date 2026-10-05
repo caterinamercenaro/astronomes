@@ -1,0 +1,1 @@
+Jean Kepler est né en Allemagne en 1571. Elève brillant, il devient professeur de mathématiques en 1594 ; il a pour maître en astronomie l'astronome Michel Maestlin, qui l'initie au système de Copernic.
